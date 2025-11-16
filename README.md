@@ -1,18 +1,17 @@
 <p align="center"
-  
-  ![](https://64.media.tumblr.com/418724bd2a3b8e510e0fd65ecb41b182/592f017f9ec193a3-a2/s400x600/5f00e58cebfcdea4a15209cbb078b7230efeca59.pnj)
-  <p align="center"
-    
 
+  ![](https://file.garden/aMn-jzbg43nKL-ik/tumblr_7609cc29c8b7008253ed9b086da2c7b4_d46dd843_1280.png)
+  <p align="center"
+
+![](https://komarev.com/ghpvc/?username=your-github-username&color=F98897&label=did+you+miss+me?)
 <p align="center"
 
- [atabook](https://eunashyuri.atabook.org/) [me](https://github.com/REVERISTCALICO)
+![](https://64.media.tumblr.com/7ec60f5aa73b544582e8791e6d53938b/98540c94592d258b-b6/s1280x1920/077a115e7f1f740797fc3b047d07dd7954c50159.pnj)
+[main](https://github.com/REVERISTCALICO)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/momongaz) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [pronounscc](https://pronouns.cc/@REVERISTCALICO)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ·‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://eunashyuri.atabook.org/)
  <p align="center"
 
-![](https://64.media.tumblr.com/9d04afc88d10d0c429d2f51151ee7f3c/592f017f9ec193a3-50/s1280x1920/83de40ca22e1fa017acdaf0156257ceea6edc8e5.gifv)
+![](https://file.garden/aMn-jzbg43nKL-ik/ezgif-6fd68b7692a7a7.gif)
 <p align="center"
 
-![](https://64.media.tumblr.com/418724bd2a3b8e510e0fd65ecb41b182/592f017f9ec193a3-a2/s400x600/5f00e58cebfcdea4a15209cbb078b7230efeca59.pnj)
-<p align="left"
-  
-[cr](https://www.tumblr.com/huohhuo/790943455495979008/herrscher-of-rebirth-seele) 
+![](https://64.media.tumblr.com/5615d89cc0d49f8405d6fb7bf6914763/98540c94592d258b-39/s1280x1920/fcce5d6ffd8f30d31bdb009e80407e25e6c8d0e8.pnj)
+<p align="center"
